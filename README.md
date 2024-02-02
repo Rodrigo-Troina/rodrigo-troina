@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do rodrigo-troina 😁
+## Bem-vindo(a) ao perfil do rodrigo-troina 🔥
 
  <div>
    <a href="https://github.com/rodrigo-troina">
